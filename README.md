@@ -11,4 +11,4 @@ dni  ​​​​ ​​​​​​​​​​​​ **freaks**
 &nbsp;<div align="center">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=true&mode=dark&bar_color=b51a00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-![](https://i.pinimg.com/736x/d6/20/a2/d620a24da6fb0d3c0001b7f69e16b80d.jpg)
+![](https://i.pinimg.com/736x/9f/03/ba/9f03bacb2328128434671181f0ef585e.jpg)
