@@ -3,7 +3,7 @@
 &nbsp;<div align="center">
 sh*rimp* ​​ ​​​​​ or ​​​​ ​​​​​​​​​​​​ p**eter** ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=a22b1f&style=plastic&label=tracks+listened)
 &nbsp;<div align="center">
-<img width="60" height="80" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/fca1a527883320218421f9c28f080d59/804b11d7acd04a61-79/s100x200/79e78305e6d1504188ea46585274f939626631dd.pnj" /> almost **four**teen​​​​​  ​​​​ ​​​​​​​​​​​​ ​​​​​​​​​​​​​​​ he/she    ​​​​ ​​​​​​​​​​​​  canadian
+<img width="60" height="80" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/fca1a527883320218421f9c28f080d59/804b11d7acd04a61-79/s100x200/79e78305e6d1504188ea46585274f939626631dd.pnj" /> **four**teen​​​​​  ​​​​ ​​​​​​​​​​​​ ​​​​​​​​​​​​​​​ he/she    ​​​​ ​​​​​​​​​​​​  canadian
 &nbsp;<div align="center">
 dni  ​​​​ ​​​​​​​​​​​​ **freaks**
 <img width="100" height="120" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/07675e34fe05e3207d660c1301e0138a/804b11d7acd04a61-60/s100x200/9b734e64fbafa3d4a4a2ceb5e012d8da3d4c2a82.gif" />
