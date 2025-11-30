@@ -11,7 +11,7 @@ dni  ​​​​ ​​​​​​​​​​​​ **freaks**
 i like **old** cars, chickens and music. 
 ![](https://64.media.tumblr.com/644ff97d492a727c2c2714890567ec46/804b11d7acd04a61-50/s400x600/eb41e1888214fda74d4111c2cfb1cb588945c047.pnj) &nbsp;<div align="center"> dont be afraid to **int** i love making new friends
 
-<img width="100" height="120" alt="ezgif com-animated-gif-maker" src="https://i.pinimg.com/736x/80/0d/57/800d57ce5f97e4b5b63f38b050029d99.jpg" />
+<img width="100" height="120" alt="ezgif com-animated-gif-maker" src="https://i.pinimg.com/736x/01/63/9d/01639dc7efd3e6ae2e270985c1edf557.jpg" />
 &nbsp;<div align="center">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
