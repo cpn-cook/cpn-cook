@@ -1,5 +1,5 @@
 &nbsp;<div align="center">
-![](https://i.pinimg.com/736x/6d/3c/c7/6d3cc75d3c51a96701d6e7e2c2a9867c.jpg)
+![](https://i.pinimg.com/736x/c4/4f/97/c44f9737d9e08b7b3a16f5a10dd28c29.jpg)
 &nbsp;<div align="center">
 sh*rimp* ​​ ​​​​​ or ​​​​ ​​​​​​​​​​​​ p**eter** ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=a22b1f&style=plastic&label=tracks+listened)
 &nbsp;<div align="center">
