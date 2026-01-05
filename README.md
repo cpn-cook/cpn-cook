@@ -6,7 +6,7 @@ sh*rimp* ​​ ​​​​​ or ​​​​ ​​​​​​​​​​�
 <img width="60" height="80" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/4973b86153396ea47abe1ee27ef19bb1/cf9c9f89d96361af-e0/s100x200/219257ff5b219a03ca401a1e9e735f94cb2b2e48.gif" /> ***four***teen​​​​​  ​​​​ ​​​​​​​​​​​​ ​​​​​​​​​​​​​​​ he/she    ​​​​ ​​​​​​​​​​​​  canadian
 &nbsp;<div align="center">
 dni  ​​​​ ​​​​​​​​​​​​ ***freaks***
-<img width="100" height="120" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/4973b86153396ea47abe1ee27ef19bb1/cf9c9f89d96361af-e0/s100x200/219257ff5b219a03ca401a1e9e735f94cb2b2e48.gif" />
+<img width="100" height="120" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/c58d2583608acc386e20185bbf4a62f6/ae680c9152aaeb94-e0/s400x600/1e8fcf5187326bd16ac532f3575b9f68f5b6b7d2.gif" />
 &nbsp;<div align="center">
 i like **old** cars, chickens and music. 
 &nbsp;<div align="center"> dont be afraid to **int** i love making new friends
