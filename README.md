@@ -8,8 +8,7 @@ sh*rimp* ​​ ​​​​​ or ​​​​ ​​​​​​​​​​�
 dni  ​​​​ ​​​​​​​​​​​​ ***freaks***
 <img width="100" height="120" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/c58d2583608acc386e20185bbf4a62f6/ae680c9152aaeb94-e0/s400x600/1e8fcf5187326bd16ac532f3575b9f68f5b6b7d2.gif" />
 &nbsp;<div align="center">
-i like **old** cars, chickens and music. 
-&nbsp;<div align="center"> dont be afraid to **int** i love making new friends
+i like **old** cars, chickens and music. <img width="100" height="120" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/b1861c14d62dfdafa4262ae0e1b77d16/82f062ad64b65975-03/s250x400/a5d186ea24f659ac229509f0ba05bc06cbee8cbc.gif" />
 
 <img width="100" height="120" alt="ezgif com-animated-gif-maker" src="https://i.pinimg.com/736x/cb/1c/dd/cb1cddb8feec91c3235e611fbe94e4b5.jpg" />
 &nbsp;<div align="center">
