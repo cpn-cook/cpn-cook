@@ -1,7 +1,7 @@
 &nbsp;<div align="center">
-![](https://i.pinimg.com/736x/c4/4f/97/c44f9737d9e08b7b3a16f5a10dd28c29.jpg)
+![](https://i.pinimg.com/736x/b8/16/70/b81670a140e9ef4f79dd278931e6bcc6.jpg)
 &nbsp;<div align="center">
-sh*rimp* ​​ ​​​​​ or ​​​​ ​​​​​​​​​​​​ t***ony*** ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=2d5189&style=plastic&label=american+cheeseburgers)
+sh*rimp* ​​ ​​​​​ or ​​​​ ​​​​​​​​​​​​ s***eth*** ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=black&style=plastic&label=stream+views)
 &nbsp;<div align="center">
 <img width="60" height="80" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/6e2bddf42cd422824b7ec3cb1f70d559/441d3f2b18102c4f-0b/s100x200/50cc49ddc9e562658a86dbb3f09353cbe78c1a0e.gif" /> ***four***teen​​​​​  ​​​​ ​​​​​​​​​​​​ ​​​​​​​​​​​​​​​ he/she    ​​​​ ​​​​​​​​​​​​  canadian
 &nbsp;<div align="center">
