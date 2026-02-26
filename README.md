@@ -3,7 +3,7 @@
 &nbsp;<div align="center">
 sh*rimp* ​​ ​​​​​ or ​​​​ ​​​​​​​​​​​​ s***eth*** ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=1b192a&style=plastic&label=tiktok+views)
 &nbsp;<div align="center">
-<img width="60" height="80" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/4973b86153396ea47abe1ee27ef19bb1/cf9c9f89d96361af-e0/s100x200/219257ff5b219a03ca401a1e9e735f94cb2b2e48.gif" /> ***four***teen​​​​​  ​​​​ ​​​​​​​​​​​​ ​​​​​​​​​​​​​​​ he/she    ​​​​ ​​​​​​​​​​​​  canadian
+<img width="60" height="80" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/f39f615aef025569c27b773d3156fef5/7660ab5f906c6bc6-6a/s100x200/6b956671a5b4afc6db6542231ea22ba88714d5cb.pnj" /> ***four***teen​​​​​  ​​​​ ​​​​​​​​​​​​ ​​​​​​​​​​​​​​​ he/she    ​​​​ ​​​​​​​​​​​​  canadian
 &nbsp;<div align="center">
 dni  ​​​​ ​​​​​​​​​​​​ ***freaks***
 <img width="100" height="120" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/c58d2583608acc386e20185bbf4a62f6/ae680c9152aaeb94-e0/s400x600/1e8fcf5187326bd16ac532f3575b9f68f5b6b7d2.gif" />
