@@ -1,7 +1,7 @@
 &nbsp;<div align="center">
 ![](https://i.pinimg.com/736x/a6/04/fc/a604fc0e842a2f7ebe96d4df746c55a1.jpg)
 &nbsp;<div align="center">
-sh*rimp* ​​ ​​​​​ or ​​​​ ​​​​​​​​​​​​ s***eth*** ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=1b192a&style=plastic&label=stream+views)
+sh*rimp* ​​ ​​​​​ or ​​​​ ​​​​​​​​​​​​ s***eth*** ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=1b192a&style=plastic&label=tiktok+views)
 &nbsp;<div align="center">
 <img width="60" height="80" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/4973b86153396ea47abe1ee27ef19bb1/cf9c9f89d96361af-e0/s100x200/219257ff5b219a03ca401a1e9e735f94cb2b2e48.gif" /> ***four***teen​​​​​  ​​​​ ​​​​​​​​​​​​ ​​​​​​​​​​​​​​​ he/she    ​​​​ ​​​​​​​​​​​​  canadian
 &nbsp;<div align="center">
