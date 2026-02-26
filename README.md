@@ -1,5 +1,5 @@
 &nbsp;<div align="center">
-![](https://i.pinimg.com/736x/b8/16/70/b81670a140e9ef4f79dd278931e6bcc6.jpg)
+![](https://i.pinimg.com/736x/a6/04/fc/a604fc0e842a2f7ebe96d4df746c55a1.jpg)
 &nbsp;<div align="center">
 sh*rimp* ​​ ​​​​​ or ​​​​ ​​​​​​​​​​​​ s***eth*** ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=1b192a&style=plastic&label=stream+views)
 &nbsp;<div align="center">
