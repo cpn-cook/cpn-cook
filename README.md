@@ -15,7 +15,7 @@ i like **old** cars, chickens and music. <img width="100" height="20" alt="ezgif
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="50" height="50" alt="ezgif com-animated-gif-maker" src="https://ca.pinterest.com/pin/1098526534132015929" />
+<img width="50" height="50" alt="ezgif com-animated-gif-maker" src="https://i.pinimg.com/736x/5e/28/30/5e2830a6577a84cd6b5df7c6bb253ba9.jpg" />
 &nbsp;<div align="center">
 
 sign ***ata*** before you go!
