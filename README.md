@@ -1,5 +1,5 @@
 &nbsp;<div align="center">
-![](https://i.pinimg.com/736x/a6/04/fc/a604fc0e842a2f7ebe96d4df746c55a1.jpg)
+![](https://coachellavalleyweekly.com/wp-content/uploads/2025/12/FP_HADDON-1.png)
 &nbsp;<div align="center">
 sh*rimp* ​​ ​​​​​ or ​​​​ ​​​​​​​​​​​​ s***eth*** ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=1b192a&style=plastic&label=tiktok+views)
 &nbsp;<div align="center">
