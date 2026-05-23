@@ -10,7 +10,7 @@ dni  ​​​​ ​​​​​​​​​​​​ ***freaks***
 &nbsp;<div align="center">
 i like **old** cars, chickens and music. <img width="100" height="20" alt="ezgif com-animated-gif-maker" src="https://64.media.tumblr.com/b1861c14d62dfdafa4262ae0e1b77d16/82f062ad64b65975-03/s250x400/a5d186ea24f659ac229509f0ba05bc06cbee8cbc.gif" />
 
-<img width="100" height="120" alt="ezgif com-animated-gif-maker" src="https://raw.githubusercontent.com/70smusic/70smusic/refs/heads/main/FRIENDS.png" />
+<img width="100" height="120" alt="ezgif com-animated-gif-maker" src="https://i.pinimg.com/736x/6e/d5/fc/6ed5fc1347aacdc0ad9d9db833f88d3f.jpg" />
 &nbsp;<div align="center">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
