@@ -1,8 +1,5 @@
+&nbsp;<div align="center">
 ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=1b192a&style=plastic&label=forgot+about+dre)
-&nbsp;<div align="center">
-<img width="40" height="30" alt="ezgif com-animated-gif-maker" src="https://s3.ezgif.com/tmp/ezgif-35f0249e322229f7.gif" /> ***four***teen​​​​​  ​​​​ ​​​​​​​​​​​​ ​​​​​​​​​​​​​​​ he/she    ​​​​ ​​​​​​​​​​​​  canadian
-&nbsp;<div align="center">
-
 <img width="100" height="100" alt="ezgif com-animated-gif-maker" src="https://i.pinimg.com/736x/a0/c2/98/a0c298bb42ff599349237bd70bea702c.jpg" />
 &nbsp;<div align="center">
 
