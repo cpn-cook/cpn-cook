@@ -3,6 +3,11 @@
 &nbsp;<div align="center">
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">
+<a href="https://Tonystark.atabook.org/">
+<img width="15%" height="14%" alt="image" src="https://files.catbox.moe/vyp8vf.PNG"/>
+    <a href="https://rentry.co/-stony">
+<img width="15%" height="14%" alt="Untitled467_20260412194036" src="https://files.catbox.moe/3s9zq9.PNG" /> 
 <details>
   <summary>(˶˃⤙˂˶)</summary><h5 align="center">
    <br />
