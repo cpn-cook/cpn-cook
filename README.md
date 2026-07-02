@@ -1,5 +1,5 @@
 &nbsp;<div align="center">
-![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=1b192a&style=plastic&label=forgot+about+dre)
+![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=1b192a&style=plastic&label=Ი𐑼)
 &nbsp;<div align="center">
 
 <img width="200" height="200" alt="ezgif com-animated-gif-maker" src="https://files.catbox.moe/6vc406.psd" />
