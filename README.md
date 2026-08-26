@@ -1,7 +1,7 @@
 &nbsp;<div align="center">
 ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=1b192a&style=plastic&label=500+followers+letsgo+boiiissssdf)
 &nbsp;<div align="center">
-<img src="https://file.garden/aRFuGuYckXJcv1VF/Screenshot%202026-08-26%20at%207.40.41%E2%80%AFAM.png" witdh="20" height="20">
+<img src="https://file.garden/aRFuGuYckXJcv1VF/Screenshot%202026-08-26%20at%207.40.41%E2%80%AFAM.png" witdh="20" height="20"> is there more I dont think #lol
 
 
 <img src="https://i.pinimg.com/736x/dc/bd/05/dcbd05e476fbef92a49116e9951fde58.jpg" witdh="450" height="490">
