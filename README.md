@@ -1,8 +1,10 @@
 &nbsp;<div align="center">
-![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=1b192a&style=plastic&label=Ი𐑼)
+![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=1b192a&style=plastic&label=ᵎᵎ+ijae+npthing+2put+jere)
 &nbsp;<div align="center">
 
-<img src="https://files.catbox.moe/93zxjk.png" witdh="450" height="490"> 
+<img src="https://i.pinimg.com/736x/dc/bd/05/dcbd05e476fbef92a49116e9951fde58.jpg" witdh="450" height="490">
+
+imTOO LAZY TO REMAKE THISHIST
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 <p align="center">
