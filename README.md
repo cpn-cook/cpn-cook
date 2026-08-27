@@ -3,8 +3,8 @@
 &nbsp;<div align="center">
 <img src="https://file.garden/aRFuGuYckXJcv1VF/Screenshot%202026-08-26%20at%207.40.41%E2%80%AFAM.png" witdh="20" height="20">
 
+<img align="left" src="https://file.garden/aRFuGuYckXJcv1VF/ef1da70de522c87dfb72a67bc19b1975.png" witdh="450" height="490">
 
-<img src="https://i.pinimg.com/736x/dc/bd/05/dcbd05e476fbef92a49116e9951fde58.jpg" witdh="450" height="490">
 
 imTOO LAZY TO REMAKE THISHIST
 
