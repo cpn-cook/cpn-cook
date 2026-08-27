@@ -12,9 +12,7 @@
 
 #nervouse how the eel do I doctorate this bro
 
-← aww dis is me and harvye
-
-nevermind i fucking hate Harvey and he needs to die. ONE HOUR CALL OF UTTER BULLSHIT WITH HIM BROOO FET HIM
+← aww dis is me and harvye nevermind i fucking hate Harvey and he needs to die.
 
 our lookkk how coool my gihub is oh wooooowwwww sigh my ata bro
 
