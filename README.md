@@ -13,7 +13,7 @@
 <div align="center"><table>
     <tr>
       <td>
-      $${\color{#96c4a2} \space sһ}$$ $${\color{#82b89b}rі}$$ $${\color{#6daa94}m}$$ $${\color{#51988c}⍴}$$　᥆r sᥱ𝗍һ  (˶ᵔ ᵕ ᵔ˶)  һᥱ  sһᥱ　<br>　⠀ 　⠀ 　⠀ 　⠀ 
+      $${\color{#96c4a2} \space sһ}{\color{#82b89b}rі}{\color{#6daa94}m}{\color{#51988c}⍴}$$　᥆r sᥱ𝗍һ  (˶ᵔ ᵕ ᵔ˶)  һᥱ  sһᥱ　<br>　⠀ 　⠀ 　⠀ 　⠀ 
                 im lazy　<br>⠀ 　⠀ 　⠀ 
       </td>
     </tr>
