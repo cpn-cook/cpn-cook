@@ -9,12 +9,14 @@
 <img src="https://file.garden/aRFuGuYckXJcv1VF/7e890564746809ce334ed02b051d283b.png" witdh="50" height="50">
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=000045&center=true&vCenter=true&width=435&lines=%28%E1%A5%A1%E1%A5%86%E1%A5%99+%E1%A5%95%E1%A5%B2%E1%A5%92%E1%A5%92%E1%A5%B2+s%E1%A5%B1%E1%A5%B1%29;%28%E1%A5%95%D2%BB%E1%A5%B2%F0%9D%97%8D+%D1%96s+%D1%96%F0%9D%97%8D%29;%28%D2%BB%D1%96m+%E1%A5%B2%E1%A5%92%E1%83%AB+m%E1%A5%B1%29;%D2%BB%E1%A5%B2r%E1%A5%8E%E1%A5%B1%E1%A5%A1;%E1%A5%92%E1%A5%86%E1%91%B2%E1%A5%86%E1%83%AB%E1%A5%A1+k%E1%A5%92%E1%A5%86%E1%A5%95s+%E1%A5%95%D2%BB%E1%A5%B2%F0%9D%97%8D+%D1%96+s%E1%A5%B1%E1%A5%B1;%E1%A5%92%E1%A5%86%E1%91%B2%E1%A5%86%E1%83%AB%E1%A5%A1+k%E1%A5%92%E1%A5%86%E1%A5%95s+%D1%96m+%E1%A5%95%E1%A5%B2%D1%96%F0%9D%97%8D%D1%96%E1%A5%92g;%E1%A5%95%E1%A5%B2%D1%96%F0%9D%97%8D%D1%96%E1%A5%92g+%F0%9D%96%BF%E1%A5%86r+%E1%A5%A1%E1%A5%86%E1%A5%99+%F0%9D%97%8D%E1%A5%86+%E1%A5%B4%E1%A5%B2%E1%A5%A3%E1%A5%A3!!!;%D2%BB%E1%A5%B2r%E1%A5%8E%E1%A5%B1%E1%A5%A1;%E1%A5%92%E1%A5%86%E1%91%B2%E1%A5%86%E1%83%AB%E1%A5%A1+k%E1%A5%92%E1%A5%86%E1%A5%95s+%E1%A5%95%D2%BB%E1%A5%B2%F0%9D%97%8D+%D1%96+s%E1%A5%B1%E1%A5%B1;%E1%A5%B1%E1%A5%8E%E1%A5%B1r%E1%A5%A1%E1%A5%86%E1%A5%92%E1%A5%B1+%F0%9D%97%8D%D2%BB%D1%96%E1%A5%92ks+%D1%96m+%E1%A5%B4r%E1%A5%B2z%E1%A5%A1;%E1%A5%B4r%E1%A5%B2z%E1%A5%A1+%F0%9D%96%BF%E1%A5%86r+%E1%A5%A1%E1%A5%86%E1%A5%99%2C+%E1%A5%86%D2%BB+%E1%91%B2%E1%A5%86%E1%A5%A1!)](https://git.io/typing-svg)
-
-#nervouse how the eel do I doctorate this bro
-
-← aww dis is me and harvye nevermind i fucking hate Harvey and he needs to die.
-
-our lookkk how coool my gihub is oh wooooowwwww sigh my ata bro
+<div align="center">　⠀
+<div align="center"><table>
+    <tr>
+      <td>
+      $${\color{#ffdda2} \space sһrіm⍴ \space　᥆r \space sᥱ𝗍һ \space (˶ᵔ ᵕ ᵔ˶) \space һᥱ \space sһᥱ}$$　<br>　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 　⠀ 
+      </td>
+    </tr>
+  </table
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 <p align="center">
