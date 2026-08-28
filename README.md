@@ -25,11 +25,9 @@
     </tr>
   </table
 
-<p align="center">
-<a href="https://shrimp.atabook.org/">
-<img width="15%" height="14%" alt="image" src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project-7.png"/>
-    <a href="https://rentry.co/thelokilaufeyson">
-<img width="11.5%" height="12%" alt="Untitled467_20260412194036" src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project-9.png" /> 
+  [<img src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project-7.png" width="15%">](https://shrimp.atabook.org/)
+  [<img src="(https://file.garden/aRFuGuYckXJcv1VF/New%20Project-9.png" width="15%">](https://rentry.co/thelokilaufeyson)
+
 <details>
 <summary> (˶˃⤙˂˶)</summary>
 awww thanks so much for 500+ follows I am forever great full #swear
