@@ -13,7 +13,7 @@
 <div align="center"><table>
     <tr>
       <td>
-      $${\color{#96c4a2} \space sһ}{\color{#82b89b}rі}{\color{#6daa94}m}{\color{#51988c}⍴}$$　᥆r sᥱ𝗍һ  (˶ᵔ ᵕ ᵔ˶)  һᥱ  sһᥱ　<br>　⠀ 　⠀ 　⠀ 　⠀ 
+      $${\color{#96c4a2} \space sһ}{\color{#82b89b}rі}{\color{#6daa94}m}{\color{#51988c}⍴}{\color{#3a8481}᥆r} {\color{#307177}s}{\color{#2b6671}ᥱ}{\color{#28606e}𝗍} {\color{#215267}һ}  {\color{#1d4962}(}{\color{#173d5b}˶}{\color{#143858}ᵔ \space ᵕ \space ᵔ}{\color{#133357}˶}{\color{#0f2b54})}  {\color{#0a1d4f}һ}{\color{#07134b}ᥱ}  {\color{#010346}sһᥱ}$$　<br>　⠀ 　⠀ 　⠀ 　⠀ 
                 im lazy　<br>⠀ 　⠀ 　⠀ 
       </td>
     </tr>
