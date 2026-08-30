@@ -13,8 +13,8 @@
 <div align="center"><table>
     <tr>
       <td>
-      $$\mathit{{\color{#96c4a2}sh}{\color{#82b89b}ri}{\color{#6daa94}m}\!{\color{#51988c}⍴}}{\color{#3a8481}᥆r} {\color{#307177}s}{\color{#2b6671}ᥱ}{\color{#28606e}𝗍} {\color{#215267}һ}  {\color{#1d4962}(}{\color{#173d5b}˶}{\color{#143858}ᵔ \space ᵕ \space ᵔ}{\color{#133357}˶}{\color{#0f2b54})}  {\color{#0a1d4f}һ}{\color{#07134b}ᥱ}  {\color{#010346}sһᥱ}$$　<br>　⠀ 　⠀ 　
-      $${\color{#0f8180}m} {\color{#0f8180}/} {\color{#037076}ᥕ}   ‎  {\color{#06576b}һ}{\color{#034e65}ᥲ}{\color{#064a63}r}{\color{#09415f}᥎}{\color{#083c5d}ᥱ}{\color{#073a5c}ᥡ}         {\color{#06395b}(} {\color{#022d57}꩜} {\color{#071950}ᯅ} {\color{#050f4d}꩜}{\color{#010549};} {\color{#020249})}⁭$$ ⁭　⠀ 
+      $$\mathit{{\color{#96c4a2}sh}{\color{#82b89b}ri}{\color{#6daa94}m}\!{\color{#51988c}⍴}{\color{#3a8481}᥆r}\space{\color{#307177}s}{\color{#2b6671}e}{\color{#28606e}𝗍}{\color{#215267}һ}\space\space\space\space {\color{#1d4962}(}{\color{#173d5b}˶}{\color{#143858}ᵔ \space ᵕ \space ᵔ}{\color{#133357}˶}{\color{#0f2b54})}\space\space\space\space  {\color{#0a1d4f}һ}{\color{#07134b}ᥱ}\space\space  {\color{#010346}sһᥱ}}$$　<br>　⠀ 　⠀ 　
+      $$\mathit{{\color{#0f8180}m} {\color{#0f8180}/} {\color{#037076}ᥕ}   ‎  {\color{#06576b}һ}{\color{#034e65}ᥲ}{\color{#064a63}r}{\color{#09415f}᥎}{\color{#083c5d}ᥱ}{\color{#073a5c}ᥡ}        \space\space\space\space {\color{#06395b}(} {\color{#022d57}꩜} {\color{#071950}ᯅ} {\color{#050f4d}꩜}{\color{#010549};} {\color{#020249})}}$$ ⁭　⠀ 
                <br>
     ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎     іᥕᥴ 𝖿ᥲᥒძ᥆m. ᑲᥲsіᥴ ძᥒі⁭ ⁭　<br>⠀⠀ 
     <br>
