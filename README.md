@@ -18,10 +18,10 @@
                <br>
 	    ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎     $$\mathit{{\color{#0f9288}іᥕᥴ}\space{\color{#0a8c85}𝖿}{\color{#0e8883}ᥲ}{\color{#0e8883}ᥒ}{\color{#08777a}ძ}{\color{#046f76}᥆}{\color{#0c6471}m}{\color{#08596b}.}\space{\color{#024f66}ᑲ}{\color{#094160}ᥲ}{\color{#083f5e}s}{\color{#073b5c}і}{\color{#073a5c}ᥴ}\space{\color{#06375b}ძ}{\color{#05355a}ᥒ}{\color{#032f58}і}}$$⁭ ⁭　<br>⠀⠀ 
     <br>
-          ❝ ᑲᥙ𝗍 ᥒ᥆ᑲ᥆ძᥡ rᥱᥲᥣᥣᥡ kᥒ᥆ᥕs mᥱ ⁭　<br>⠀
-             ᥣіkᥱ һᥲr᥎ᥱᥡ <br>
-	 ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ᥲᥒძ ᥆ᥒᥴᥱ ᥡ᥆ᥙ᥎ᥱ mᥱ𝗍 һіm <br>
-      ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎     іm sᥙrᥱ ᥡ᥆ᥙᥣᥣ ᥲgrᥱᥱ ❞ ⁭　<br>⠀
+           $$\mathit{{\color{#0f9288}❝}\space{\color{#0f9288}ᑲ}{\color{#0f9288}ᥙ}{\color{#0f9288}𝗍}\space{\color{#0f9288}ᥒ}{\color{#0f9288}᥆}{\color{#0f9288}ᑲ}{\color{#0f9288}᥆}{\color{#0f9288}ძ}{\color{#0f9288}ᥡ}\space{\color{#0f9288}r}{\color{#0f9288}ᥱ}{\color{#0f9288}ᥲ}{\color{#0f9288}ᥣ}{\color{#0f9288}ᥣ}{\color{#0f9288}ᥡ}\space{\color{#0f9288}k}{\color{#0f9288}ᥒ}{\color{#0f9288}᥆}{\color{#0f9288}ᥕ}{\color{#0f9288}s}\space{\color{#0f9288}m}{\color{#0f9288}ᥱ}}$$ ⁭　<br>⠀
+                   ‎ ‎    $$\mathit{{\color{#0f9288}ᥣ}{\color{#0f9288}і}{\color{#0f9288}k}{\color{#0f9288}ᥱ}\space{\color{#0f9288}һ}{\color{#0f9288}ᥲ}{\color{#0f9288}r}{\color{#0f9288}᥎}{\color{#0f9288}ᥱ}{\color{#0f9288}ᥡ}}$$ <br>
+	 ‎ ‎  ‎ ‎ ‎ ‎  ‎ $$\mathit{{\color{#0f9288}‎ᥲ}{\color{#0f9288}ᥒ}{\color{#0f9288}ძ}\space{\color{#0f9288}᥆}{\color{#0f9288}ᥒ}{\color{#0f9288}ᥴ}{\color{#0f9288}ᥱ}\space{\color{#0f9288}ᥡ}{\color{#0f9288}᥆}{\color{#0f9288}ᥙ}{\color{#0f9288}᥎}{\color{#0f9288}ᥱ}\space{\color{#0f9288}m}{\color{#0f9288}ᥱ}{\color{#0f9288}𝗍}\space{\color{#0f9288}һ}{\color{#0f9288}і}{\color{#0f9288}m}}$$ <br>
+      ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎     $$\mathit{{\color{#0f9288}і}{\color{#0f9288}m}\space{\color{#0f9288}s}{\color{#0f9288}ᥙ}{\color{#0f9288}r}{\color{#0f9288}ᥱ}\space{\color{#0f9288}ᥡ}{\color{#0f9288}᥆}{\color{#0f9288}ᥙ}{\color{#0f9288}ᥣ}{\color{#0f9288}ᥣ}\space{\color{#0f9288}ᥲ}{\color{#0f9288}g}{\color{#0f9288}r}{\color{#0f9288}ᥱ}{\color{#0f9288}ᥱ}\space{\color{#0f9288}❞}}$$ ⁭　<br>⠀
   </td>
     </tr>
   </table
