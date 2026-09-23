@@ -1,5 +1,5 @@
 &nbsp;<div align="center">
-![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=7f8b4c&style=plastic&label=.+.+.++　+(╥﹏╥)+　jerry’s+　++　　)
+![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=7f8b4c&style=plastic&label=.+.+.++　+(..◜ᴗ◝..)+　　jerry’s+　++　　)
 &nbsp;<div align="center">
 <img src="https://file.garden/aRFuGuYckXJcv1VF/Screenshot%202026-08-26%20at%207.40.41%E2%80%AFAM.png" witdh="20" height="20">
 
