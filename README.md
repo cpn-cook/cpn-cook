@@ -3,31 +3,13 @@
 &nbsp;<div align="center">
 <img src="https://file.garden/aRFuGuYckXJcv1VF/Screenshot%202026-08-26%20at%207.40.41%E2%80%AFAM.png" witdh="20" height="20">
 
-<img align="left" src="https://file.garden/aRFuGuYckXJcv1VF/ef1da70de522c87dfb72a67bc19b1975.png" witdh="450" height="490">
+<img align="left" src="https://file.garden/aRFuGuYckXJcv1VF/IMG_7873_20260922211628.gif" witdh="450" height="490">
+
+oh is that me? pure aura. I’ll remake this shitty gif and uhhhh… make this look better soon… like extremely soon.
+⠀
 
 
-<img src="https://file.garden/aRFuGuYckXJcv1VF/7e890564746809ce334ed02b051d283b.png" witdh="50" height="50">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=1D4962&center=true&vCenter=true&width=435&height=26&lines=%28%E1%A5%A1%E1%A5%86%E1%A5%99+%E1%A5%95%E1%A5%B2%E1%A5%92%E1%A5%92%E1%A5%B2+s%E1%A5%B1%E1%A5%B1%29;%28%E1%A5%95%D2%BB%E1%A5%B2%F0%9D%97%8D+%D1%96s+%D1%96%F0%9D%97%8D%29;%28%D2%BB%D1%96m+%E1%A5%B2%E1%A5%92%E1%83%AB+m%E1%A5%B1%29;%D2%BB%E1%A5%B2r%E1%A5%8E%E1%A5%B1%E1%A5%A1;%E1%A5%92%E1%A5%86%E1%91%B2%E1%A5%86%E1%83%AB%E1%A5%A1+k%E1%A5%92%E1%A5%86%E1%A5%95s+%E1%A5%95%D2%BB%E1%A5%B2%F0%9D%97%8D+%D1%96+s%E1%A5%B1%E1%A5%B1;%E1%A5%92%E1%A5%86%E1%91%B2%E1%A5%86%E1%83%AB%E1%A5%A1+k%E1%A5%92%E1%A5%86%E1%A5%95s+%D1%96m+%E1%A5%95%E1%A5%B2%D1%96%F0%9D%97%8D%D1%96%E1%A5%92g;%E1%A5%95%E1%A5%B2%D1%96%F0%9D%97%8D%D1%96%E1%A5%92g+%F0%9D%96%BF%E1%A5%86r+%E1%A5%A1%E1%A5%86%E1%A5%99+%F0%9D%97%8D%E1%A5%86+%E1%A5%B4%E1%A5%B2%E1%A5%A3%E1%A5%A3!!!;%D2%BB%E1%A5%B2r%E1%A5%8E%E1%A5%B1%E1%A5%A1;%E1%A5%92%E1%A5%86%E1%91%B2%E1%A5%86%E1%83%AB%E1%A5%A1+k%E1%A5%92%E1%A5%86%E1%A5%95s+%E1%A5%95%D2%BB%E1%A5%B2%F0%9D%97%8D+%D1%96+s%E1%A5%B1%E1%A5%B1;%E1%A5%B1%E1%A5%8E%E1%A5%B1r%E1%A5%A1%E1%A5%86%E1%A5%92%E1%A5%B1+%F0%9D%97%8D%D2%BB%D1%96%E1%A5%92ks+%D1%96m+%E1%A5%B4r%E1%A5%B2z%E1%A5%A1;%E1%A5%B4r%E1%A5%B2z%E1%A5%A1+%F0%9D%96%BF%E1%A5%86r+%E1%A5%A1%E1%A5%86%E1%A5%99%2C+%E1%A5%86%D2%BB+%E1%91%B2%E1%A5%86%E1%A5%A1!)](https://git.io/typing-svg)
-<div align="center">　⠀
-<div align="center"><table>
-    <tr>
-      <td>
-        $$\mathit{{\color{#96c4a2}sh}{\color{#82b89b}ri}{\color{#6daa94}m}\!{\color{#51988c}⍴}{\color{#3a8481}᥆r}\space{\color{#307177}s}{\color{#2b6671}e}{\color{#28606e}𝗍}{\color{#215267}һ}\space\space\space\space {\color{#1d4962}(}{\color{#173d5b}˶}{\color{#143858}ᵔ \space ᵕ \space ᵔ}{\color{#133357}˶}{\color{#0f2b54})}\space\space\space\space  {\color{#0a1d4f}һ}{\color{#07134b}ᥱ}\space\space  {\color{#010346}sһᥱ}}$$　<br>　⠀ 　⠀ 　
-      $$\mathit{{\color{#0f8180}m} {\color{#0f8180}/} {\color{#037076}ᥕ}   ‎  {\color{#06576b}һ}{\color{#034e65}ᥲ}{\color{#064a63}r}{\color{#09415f}᥎}{\color{#083c5d}ᥱ}{\color{#073a5c}ᥡ}        \space\space\space\space {\color{#06395b}(} {\color{#022d57}꩜} {\color{#071950}ᯅ} {\color{#050f4d}꩜}{\color{#010549};} {\color{#020249})}}$$ ⁭　⠀ 
-               <br>
-	    ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎     $$\mathit{{\color{#0f9288}іᥕᥴ}\space{\color{#0a8c85}𝖿}{\color{#0e8883}ᥲ}{\color{#0e8883}ᥒ}{\color{#08777a}ძ}{\color{#046f76}᥆}{\color{#0c6471}m}{\color{#08596b}.}\space{\color{#024f66}ᑲ}{\color{#094160}ᥲ}{\color{#083f5e}s}{\color{#073b5c}і}{\color{#073a5c}ᥴ}\space{\color{#06375b}ძ}{\color{#05355a}ᥒ}{\color{#032f58}і}}$$⁭ ⁭　<br>⠀⠀ 
-    <br>
-           $$\mathit{{\color{#66b496}❝}\space{\color{#46a48f}ᑲ}{\color{#329b8c}ᥙ}{\color{#1f9689}𝗍}\space{\color{#099187}ᥒ}{\color{#078e86}᥆}{\color{#088d85}ᑲ}{\color{#0c8984}᥆}{\color{#118181}ძ}{\color{#0f807f}ᥡ}\space{\color{#046f76}r}{\color{#0d6371}ᥱ}{\color{#06566a}ᥲ}{\color{#035368}ᥣ}{\color{#034e66}ᥣ}{\color{#074862}ᥡ}\space{\color{#083e5e}k}{\color{#073b5c}ᥒ}{\color{#06395b}᥆}{\color{#06395b}ᥕ}{\color{#05345a}s}\space{\color{#032b56}m}{\color{#071e52}ᥱ}}$$ ⁭　<br>⠀
-                   ‎ ‎    $$\mathit{{\color{#4fa892}ᥣ}{\color{#49a590}і}{\color{#3da08e}k}{\color{#319a8c}ᥱ}\space{\color{#129388}һ}{\color{#078e86}ᥲ}{\color{#088d85}r}{\color{#0a8c85}᥎}{\color{#0a8b84}ᥱ}{\color{#108481}ᥡ}}$$ <br>
-	 ‎ ‎  ‎ ‎ ‎ ‎  ‎ $$\mathit{{\color{#2a988b}‎ᥲ}{\color{#129288}ᥒ}{\color{#078f86}ძ}\space{\color{#088d85}᥆}{\color{#088d85}ᥒ}{\color{#0c8a83}ᥴ}{\color{#0f807f}ᥱ}\space{\color{#06767a}ᥡ}{\color{#0b6873}᥆}{\color{#0c606f}ᥙ}{\color{#035268}᥎}{\color{#034e66}ᥱ}\space{\color{#083f5f}m}{\color{#073b5d}ᥱ}{\color{#073a5c}𝗍}\space{\color{#06385b}һ}{\color{#05355a}і}{\color{#022e58}m}}$$ <br>
-      ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎     $$\mathit{{\color{#078f86}і}{\color{#078e86}m}\space{\color{#0c8a83}s}{\color{#108481}ᥙ}{\color{#0f8180}r}{\color{#0c7c7d}ᥱ}\space{\color{#0b6873}ᥡ}{\color{#0a5a6c}᥆}{\color{#06566a}ᥙ}{\color{#034e66}ᥣ}{\color{#064a64}ᥣ}\space{\color{#083f5f}ᥲ}{\color{#073b5c}g}{\color{#073a5c}r}{\color{#06395b}ᥱ}{\color{#06385b}ᥱ}\space{\color{#042a56}❞}}$$ ⁭　<br>⠀
-  </td>
-    </tr>
-  </table
-
-  [<img src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project-7.png" width="15%">](https://shrimp.atabook.org/)
-  [<img src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project-9.png" width="11%">](https://rentry.co/thelokilaufeyson)
 
 <details>
 <summary> (˶˃⤙˂˶)</summary>
