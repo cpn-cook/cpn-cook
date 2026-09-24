@@ -1,11 +1,11 @@
 &nbsp;<div align="center">
 ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=7f8b4c&style=plastic&label=.+.+.++　+(..◜ᴗ◝..)+　　jerry’s+　++　　)
 &nbsp;<div align="center">
-<img src="https://file.garden/aRFuGuYckXJcv1VF/Screenshot%202026-08-26%20at%207.40.41%E2%80%AFAM.png" witdh="20" height="20"> I’m pretty sure this is the only nominationwive gotw 😂👌 if im missing on ata me😂😂😂👌
+<img src="https://file.garden/aRFuGuYckXJcv1VF/Screenshot%202026-08-26%20at%207.40.41%E2%80%AFAM.png" witdh="20" height="20">
 
-<img align="left" src="https://file.garden/aRFuGuYckXJcv1VF/IMG_7873_20260922211628%20(1).gif" witdh="450" height="490">
+<img align="left" src="https://file.garden/aRFuGuYckXJcv1VF/IMG_7873_20260922211628%20(1).gif" width="550" hieght="490">
 
-oh is that me? pure aura. I’ll remake this shitty gif and uhhhh… make this look better soon… like extremely soon.
+photo pea is down I cant do shit
 ⠀
 
 
