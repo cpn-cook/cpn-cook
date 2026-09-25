@@ -1,5 +1,5 @@
 &nbsp;<div align="center">
-<img src="https://file.garden/aRFuGuYckXJcv1VF/Mobile%20-%20Pocket%20Mortys%20-%20Jerrys%20-%20Self-Promoting%20Jerry%20copy.png" witdh="30" height="30"> ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=7f8b4c&style=plastic&label=.+.+.++　+(..◜ᴗ◝..)+　　jerry’s+　++　　) <img src="https://file.garden/aRFuGuYckXJcv1VF/Mobile%20-%20Pocket%20Mortys%20-%20Mortys%20-%20%23140%20Jerry%20Fan%20Morty%20copy.png" witdh="30" height="30">
+<img src="https://file.garden/aRFuGuYckXJcv1VF/Mobile%20-%20Pocket%20Mortys%20-%20Jerrys%20-%20Self-Promoting%20Jerry%20copy.png" witdh="30" height="30"> ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=7f8b4c&style=plastic&label=.+.+.++　+(..◜ᴗ◝..)+　　jerry’s+　++　　) <img src="https://file.garden/aRFuGuYckXJcv1VF/Mobile%20-%20Pocket%20Mortys%20-%20Mortys%20-%20%23140%20Jerry%20Fan%20Morty%20copy.png" witdh="30" height="30">  ![](https://komarev.com/ghpvc/?username=cpn-cook&=true&color=6c833e&style=plastic&label=.+.+　++　+superfan+　　jerry’s+　++　　)<img src="https://file.garden/aRFuGuYckXJcv1VF/Mobile%20-%20Pocket%20Mortys%20-%20Mortys%20-%20%23144%20Jerry%20Morty.png" witdh="30" height="30">
 &nbsp;<div align="center">
 <img src="https://file.garden/aRFuGuYckXJcv1VF/Screenshot%202026-08-26%20at%207.40.41%E2%80%AFAM.png" witdh="20" height="20">
 
