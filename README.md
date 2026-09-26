@@ -35,7 +35,7 @@
 </table>
 
  <p align="center">
-  <a href="https://https://rentry.co/hoardboard"><img src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project.gif"width: 1; height: 1;" />  <a href="https://pronouns.cc/@3shrimp"><img src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project-3.gif"width: 1; height: 1;" /> <a href="https://doctorhouses.straw.page/"><img src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project-4.gif"width: 1; height: 1;" /> <a href="https://shrimp.atabook.org/"><img src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project-5.gif"width: 1; height: 1;" />
+  <a href="https://rentry.co/hoardboard"><img src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project.gif"width: 1; height: 1;" />  <a href="https://pronouns.cc/@3shrimp"><img src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project-3.gif"width: 1; height: 1;" /> <a href="https://doctorhouses.straw.page/"><img src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project-4.gif"width: 1; height: 1;" /> <a href="https://shrimp.atabook.org/"><img src="https://file.garden/aRFuGuYckXJcv1VF/New%20Project-5.gif"width: 1; height: 1;" />
  </p>
 
 
