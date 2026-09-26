@@ -30,6 +30,8 @@
   Jerry Smith & Peter quill. 
 
   kins && yumes can int idgaf
+
+  oh and dni rickorty fans
     </td>
   </tr>
 </table>
