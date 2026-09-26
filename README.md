@@ -9,7 +9,7 @@
       <img src="https://file.garden/aRFuGuYckXJcv1VF/Mobile%20-%20Pocket%20Mortys%20-%20Jerrys%20-%20Jerry%20copy%206.png" width="100">
     </td>
     <td rowspan="2" align="center">
-      <img src="https://file.garden/aRFuGuYckXJcv1VF/Mobile%20-%20Pocket%20Mortys%20-%20Jerrys%20-%20Jerry%20copy%207.png" width="258">
+      <img src="https://file.garden/aRFuGuYckXJcv1VF/Mobile%20-%20Pocket%20Mortys%20-%20Jerrys%20-%20Jerry%20copy%207-2.png" width="258">
     </td>
   </tr>
 
