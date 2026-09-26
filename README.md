@@ -16,6 +16,20 @@
   <tr>
 <td align="center" valign="middle">
      <img src="https://file.garden/aRFuGuYckXJcv1VF/95297-2.png" width="30">
+  
+  hi #lol I'll do this information 
+  
+  later and like.. make this look 
+  
+  att pretty oh ohhh. 
+
+  all you really need to know is 
+  
+  that im #14 and like...... I kin
+  
+  Jerry Smith & Peter quill. 
+
+  kins && yumes can int idgaf
     </td>
   </tr>
 </table>
