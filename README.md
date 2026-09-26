@@ -3,13 +3,22 @@
 &nbsp;<div align="center">
 <img src="https://file.garden/aRFuGuYckXJcv1VF/Screenshot%202026-08-26%20at%207.40.41%E2%80%AFAM.png" witdh="20" height="20">
 
-<img align="left" src="https://file.garden/aRFuGuYckXJcv1VF/IMG_7873_20260922211628%20(1).gif" width="550" hieght="490">
+<table>
+  <tr>
+<td align="center" valign="middle">
+      <img src="https://file.garden/aRFuGuYckXJcv1VF/95297%20copy.png" width="100">
+    </td>
+    <td rowspan="2" align="center">
+      <img src="https://file.garden/aRFuGuYckXJcv1VF/95297-3.png" width="258">
+    </td>
+  </tr>
 
-photo pea is down I cant do shit
-⠀
-IM SO DONE IM SO DONE IM SO TIRED OD LOOKING AT THIS SHITTY ASS GIF BRO PHOTOPEA COME BACJ ONLINE
-
-
+  <tr>
+<td align="center" valign="middle">
+     <img src="https://file.garden/aRFuGuYckXJcv1VF/95297-2.png" width="30">
+    </td>
+  </tr>
+</table>
 
 
 <details>
