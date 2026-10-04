@@ -3,7 +3,9 @@
 &nbsp;<div align="center">
 <img src="https://file.garden/aRFuGuYckXJcv1VF/Screenshot%202026-08-26%20at%207.40.41%E2%80%AFAM.png" witdh="20" height="20">
  <p align="center">
-  <a href="https://github.com/entitlement-town"><img src="https://file.garden/aRFuGuYckXJcv1VF/Untitled770_20260928215240.png"witdh="20" height="20" />
+  <a href="https://github.com/entitlement-town"><img src="https://file.garden/aRFuGuYckXJcv1VF/Untitled770_20260928215240.png"witdh="20" height="20" /> 
+   <p align="center">
+  <a href="https://github.com/entitlement-town"><img src="https://file.garden/aRFuGuYckXJcv1VF/Screenshot%202026-10-04%20at%203.47.50%E2%80%AFPM.png"witdh="10" height=10" />
 
 <table>
   <tr>
