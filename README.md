@@ -52,14 +52,4 @@ I have photos I need to remove I just haven't gotten to it yet. and also photos 
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=center&duration=2869&pause=832&color=7F8B4C&center=true&vCenter=true&width=435&lines=%E1%A5%B4%E1%A5%B2%E1%A5%A3%E1%A5%A3+m%E1%A5%B1+%D1%96rr%E1%A5%B1s%E2%8D%B4%E1%A5%86%E1%A5%92s%D1%96%E1%91%B2%E1%A5%A3%E1%A5%B1;%E1%A5%B4%E1%A5%B2%E1%A5%A3%E1%A5%A3+m%E1%A5%B1+%E1%A5%99%E1%A5%92r%E1%A5%B1%E1%A5%A3%D1%96%E1%A5%B2%E1%91%B2%E1%A5%A3%E1%A5%B1;%F0%9D%97%8D%D2%BBr%E1%A5%86%E1%A5%95+%D1%96%E1%A5%92+%E1%A5%99%E1%A5%92%E1%83%AB%E1%A5%B1%E2%8D%B4%E1%A5%B1%E1%A5%92%E1%83%AB%E1%A5%B2%E1%91%B2%E1%A5%A3%E1%A5%B1+%F0%9D%97%8D%E1%A5%86%E1%A5%86;%E1%83%AB%E1%A5%86+m%E1%A5%A1+%F0%9D%96%BF%E1%A5%86%E1%A5%86%E1%A5%A3%D1%96s%D2%BB+%E1%A5%B2%E1%A5%A3%D1%96%E1%91%B2%D1%96s+%E1%91%B2%E1%A5%86r%E1%A5%B1+%E1%A5%A1%E1%A5%86%E1%A5%99%3F;%E1%A5%95%E1%A5%B1%E1%A5%A3%E1%A5%A3%2C+%D1%96m+%E1%A5%92%E1%A5%86%F0%9D%97%8D+%F0%9D%97%8D%E1%A5%86%E1%A5%86+%E1%A5%B4%E1%A5%A3%E1%A5%B1%E1%A5%8E%E1%A5%B1r;%D1%96+%C8%B7%E1%A5%99s%F0%9D%97%8D+%E1%A5%B2%E1%83%AB%E1%A5%86r%E1%A5%B1+%E1%A5%A1%E1%A5%86%E1%A5%99!;%E1%A5%B4%E1%A5%B2%E1%A5%A3%E1%A5%A3+m%E1%A5%B1+%E1%A5%99%E1%A5%92%E2%8D%B4r%E1%A5%B1%E1%83%AB%D1%96%E1%A5%B4%F0%9D%97%8D%E1%A5%B2%E1%91%B2%E1%A5%A3%E1%A5%B1;%F0%9D%97%8D%E1%A5%B1%E1%A5%A3%E1%A5%A3+m%E1%A5%B1+%D1%96m+%D1%96m%E2%8D%B4r%E1%A5%B2%E1%A5%B4%F0%9D%97%8D%D1%96%E1%A5%B4%E1%A5%B2%E1%A5%A3;r%E1%A5%B2%D1%96%E1%A5%92%E1%91%B2%E1%A5%86%E1%A5%95s+%D1%96m+%D1%96%E1%A5%92%E1%A5%B4%E1%A5%A3%D1%96%E1%A5%92%E1%A5%B1%E1%83%AB+%F0%9D%97%8D%E1%A5%86+%E2%8D%B4%E1%A5%99rs%E1%A5%99%E1%A5%B1;%E1%A5%A1%E1%A5%86%E1%A5%99+g%E1%A5%86+%E1%A5%B2%D2%BB%E1%A5%B1%E1%A5%B2%E1%83%AB+%E1%A5%B2%E1%A5%92%E1%83%AB+%E1%A5%B4%E1%A5%B2%E1%A5%A3%E1%A5%A3+m%E1%A5%B1+%D1%96rr%E1%A5%B1s%E2%8D%B4%E1%A5%86%E1%A5%92s%D1%96%E1%91%B2%E1%A5%A3%E1%A5%B1;%D1%96'%E1%A5%A3%E1%A5%A3+%E1%A5%B2%E1%83%ABm%D1%96%F0%9D%97%8D+%D1%96m+%E1%A5%99%E1%A5%92r%E1%A5%B1%E1%A5%A3%D1%96%E1%A5%B2%E1%91%B2%E1%A5%A3%E1%A5%B1;%E1%91%B2%E1%A5%99%F0%9D%97%8D+%D1%96%F0%9D%97%8D's+%E1%A5%99%E1%A5%92%E1%83%AB%E1%A5%B1%E1%A5%92%D1%96%E1%A5%B2%E1%91%B2%E1%A5%A3%E1%A5%A1+%F0%9D%97%8Dr%E1%A5%99%E1%A5%B1;%F0%9D%97%8D%D2%BB%E1%A5%B2%F0%9D%97%8D+%D1%96m+%D1%96rr%E1%A5%B1s%E2%8D%B4%E1%A5%86%E1%A5%92s%D1%96%E1%91%B2%E1%A5%A3%E1%A5%A1+m%E1%A5%B2%E1%83%AB;%F0%9D%96%BF%E1%A5%86r+%E1%A5%A1%E1%A5%86%E1%A5%99+%CB%9A%CA%9A%E2%99%A1%C9%9E%CB%9A" alt="Typing SVG" /></a>
 
-
- honestly I fucking hate how this looks. someone gift me a better GitHub theme of my fuck bro this Is just a mess
-
-
-
-
-<br>
-<br>
-<br>
-
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
