@@ -13,7 +13,7 @@
       <img src="https://file.garden/aRFuGuYckXJcv1VF/Mobile%20-%20Pocket%20Mortys%20-%20Jerrys%20-%20Jerry%20copy%206.png" width="100">
     </td>
     <td rowspan="2" align="center">
-      <img src="https://file.garden/aRFuGuYckXJcv1VF/Mobile%20-%20Pocket%20Mortys%20-%20Jerrys%20-%20Jerry%20copy%207-2.png" width="258">
+      <img src="https://file.garden/aRFuGuYckXJcv1VF/Mobile%20-%20Pocket%20Mortys%20-%20Jerrys%20-%20Jerry%20copy%207-2.png" width="180">
     </td>
   </tr>
 
@@ -26,16 +26,6 @@
   later and like.. make this look 
   
   att pretty oh ohhh. 
-
-  all you really need to know is 
-  
-  that im #14 and like...... I kin
-  
-  Jerry Smith & Peter quill. 
-
-  kins && yumes can int idgaf
-
-  oh and dni rickorty fans
     </td>
   </tr>
 </table>
